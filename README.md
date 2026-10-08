@@ -30,9 +30,9 @@ oh wow I wonder what my favorite piece is (difficulty: impossible)
 
 # $\color{#fc8403}{\text{MORE ABOUT ME? KIND OF?}}$
 
-I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
+I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and Deltarune!!
 
-^ in order of current interest
+^ in order of current interest (though voca, utau, and synthv have the same amount of interest)
 
 
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
