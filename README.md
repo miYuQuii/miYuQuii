@@ -1,5 +1,10 @@
 # MIYUQUI.DOT.ME
 
+ 
+# PLSPLS DNI 
+darkshippers, loli/shotacons, AI slop makers, romantic subgraft, shurishotstaff shippers, BASIC DNI basic dni
+
+ 
 # WARNING BEFORE INTERACTING 
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
  
@@ -20,9 +25,6 @@ I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest
 
- 
-# PLSPLS DNI 
-darkshippers, loli/shotacons, AI slop makers, romantic subgraft, shurishotstaff shippers, BASIC DNI basic dni
 
 # MORE ABOUT ME? KIND OF?
 
