@@ -18,6 +18,8 @@ hiiii hi
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
 
 I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be warned before scrolling all the way down! 
+
+#
 <p align = center>
  <img width="322" height="330" alt="Untitled262_20261007224725" src="https://github.com/user-attachments/assets/887a21b7-bdb2-4477-b18f-1ad1f2944fb8" /> </p>
  
