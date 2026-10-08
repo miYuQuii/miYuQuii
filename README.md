@@ -16,7 +16,8 @@ I am VERY easy to hurt, and I might come off as rude sometimes! So please intera
 * don't really matter LOLOL
 
 
-I like Phighting!, Vocaloid, Limbus Company, FNAF, Undertale, and Deltarune!!
+I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
+^ in order of current interest
 
 PLSPLS DNI darkshippers, loli/shotacons, AI slop makers, romantic subgraft, shurishotstaff shippers, BASIC DNI basic dni
 
