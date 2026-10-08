@@ -3,7 +3,7 @@
 # MIYUQUI.DOT.ME
 hiiii hi
 
-* Call me $\color{#fc8403}{\text{**MIYUQUI**}}$!!
+* Call me $\color{#fc8403}{\text{MIYUQUI}}$!!
 * or Yuqui
 * or Miyu
 * don't really matter LOLOL
