@@ -1,6 +1,6 @@
 # MIYUQUI.DOT.ME
 
-# FAIR WARNING BEFORE INTERACTING 
+# WARNING BEFORE INTERACTING 
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
  
  <img width="322" height="390" alt="Untitled262_20261007224452" src="https://github.com/user-attachments/assets/f82c4268-7062-4f2a-88c3-991da472052d"/> <img width="322" height="300<
