@@ -1,5 +1,5 @@
 # MIYUQUI.DOT.ME
- hiiii hi
+hiiii hi
 
 * Call me **MIYUQUI**!!
 * or Yuqui
@@ -8,19 +8,23 @@
 
   
 # PLSPLS DNI 
-darkshippers, loli/shotacons, AI slop makers, romantic subgraft, shurishotstaff shippers, BASIC DNI basic dni
-
+* homophobes, transphobes, racists
+* darkshippers
+* loli/shotacons
+* AI slop makers
+* ppl who ship romantic subgraft, shurishotstaff, domvalk
  
 # WARNING BEFORE INTERACTING 
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
 
 I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be warned before scrolling all the way down! 
+<p align = center>
+ <img width="322" height="290" alt="Untitled262_20261007224725" src="https://github.com/user-attachments/assets/887a21b7-bdb2-4477-b18f-1ad1f2944fb8" /> </p>
  
- <img width="322" height="390" alt="Untitled262_20261007224452" src="https://github.com/user-attachments/assets/f82c4268-7062-4f2a-88c3-991da472052d"/> <img width="322" height="300<
-" alt="Untitled262_20261007224725" src="https://github.com/user-attachments/assets/887a21b7-bdb2-4477-b18f-1ad1f2944fb8" /> 
-
-<img width="322" height="500" alt="Untitled262_20261007224736" src="https://github.com/user-attachments/assets/02f5769d-6b4e-49b1-abdf-428ed2babfda" /> <img width="322" height="500" alt="Untitled262_20261007224741" src="https://github.com/user-attachments/assets/259a3c6d-0b6a-4787-b083-6f76ee1cb16b" /> 
-
+<img width="322" height="500" alt="Untitled262_20261007224736" src="https://github.com/user-attachments/assets/02f5769d-6b4e-49b1-abdf-428ed2babfda" /> 
+<img width="322" height="500" alt="Untitled262_20261007224452" src="https://github.com/user-attachments/assets/f82c4268-7062-4f2a-88c3-991da472052d"/>
+<img width="322" height="500" alt="Untitled262_20261007224741" src="https://github.com/user-attachments/assets/259a3c6d-0b6a-4787-b083-6f76ee1cb16b" />
+<p align = center> -Machine Love, Jamie Paige (2024) </p>
 oh wow I wonder what my favorite piece is (difficulty: impossible)
 
 
