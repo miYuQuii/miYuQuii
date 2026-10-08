@@ -7,14 +7,14 @@ hiiii hi
 * don't really matter LOLOL
 
   
-# PLSPLS DNI 
+# $\color{#fc8403}{\text{PLSPLS DNI}}$
 * homophobes, transphobes, racists
 * darkshippers
 * loli/shotacons
 * AI slop makers
 * ppl who ship romantic subgraft, shurishotstaff, domvalk
  
-# WARNING BEFORE INTERACTING 
+# $\color{#fc8403}{\text{MILD WARNING BEFORE INTERACTING}}$
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
 
 I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be warned before scrolling all the way down! 
@@ -28,14 +28,15 @@ I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be 
 oh wow I wonder what my favorite piece is (difficulty: impossible)
 
 
-# MORE ABOUT ME? KIND OF?
+# $\color{#fc8403}{\text{MORE ABOUT ME? KIND OF?}}$
 
 I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest
 
 
-lowk larpergraft I only like this funny little robot because I like orange
+lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
+ > " oh then why isn't your profile subspace based? " uh. I don't know either.
 
 I am an emotional brick wall!! it can and WILL take me a long time to process emotional information sad face
 
