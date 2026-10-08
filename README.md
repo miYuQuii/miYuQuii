@@ -36,8 +36,6 @@ I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and 
 
 ^ in order of current interest (though voca, utau, and synthv have the same amount of interest)
 
-<img width="264" height="248" alt="pony-town-Pwie __ Limbus Co- c+h-dance-4-padded-4x (1)" src="https://github.com/user-attachments/assets/503947ab-85f9-470e-8067-37edafad045f" />
-
 
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
  > " oh then why isn't your profile subspace based? " uh. I don't know either.
