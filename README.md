@@ -3,7 +3,7 @@
 # MIYUQUI.DOT.ME
 hiiii hi
 
-* Call me **MIYUQUI**!!
+* Call me $\color{#fc8403}{\text{**MIYUQUI**}}$!!
 * or Yuqui
 * or Miyu
 * don't really matter LOLOL
@@ -37,7 +37,7 @@ I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 ^ in order of current interest
 
 
-biograft is me I am biograft.. mayb (nods)
+lowk larpergraft I only like this funny little robot because I like orange
 
 I am an emotional brick wall!! it can and WILL take me a long time to process emotional information sad face
 
