@@ -24,7 +24,8 @@ I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 # PLSPLS DNI 
 darkshippers, loli/shotacons, AI slop makers, romantic subgraft, shurishotstaff shippers, BASIC DNI basic dni
 
- 
+# MORE ABOUT ME? KIND OF?
+
 most sentient biograft besides 6-13 (nods)
 
 biograft is me I am biograft.. I jus wanna be normal (nods)
