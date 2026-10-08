@@ -21,13 +21,13 @@ I am VERY easy to hurt, and I might come off as rude sometimes! So please intera
 * don't really matter LOLOL
 
 
+# MORE ABOUT ME? KIND OF?
+
 I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest
 
-
-# MORE ABOUT ME? KIND OF?
-
+ 
 most sentient biograft besides 6-13 (nods)
 
 biograft is me I am biograft.. I jus wanna be normal (nods)
