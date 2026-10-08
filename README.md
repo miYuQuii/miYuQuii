@@ -21,7 +21,7 @@ I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be 
 
 #
 <p align = center>
- <img width="322" height="330" alt="Untitled262_20261007224725" src="https://github.com/user-attachments/assets/887a21b7-bdb2-4477-b18f-1ad1f2944fb8" /> </p>
+ <img width="370" height="330" alt="Untitled262_20261007224725" src="https://github.com/user-attachments/assets/887a21b7-bdb2-4477-b18f-1ad1f2944fb8" /> </p>
  
 <img width="250" height="500" alt="Untitled262_20261007224736" src="https://github.com/user-attachments/assets/02f5769d-6b4e-49b1-abdf-428ed2babfda" /> 
 <img width="330" height="500" alt="Untitled262_20261007224452" src="https://github.com/user-attachments/assets/f82c4268-7062-4f2a-88c3-991da472052d"/>
