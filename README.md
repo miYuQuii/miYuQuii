@@ -26,10 +26,8 @@ I like Phighting!, Limbus Company, Vocaloid, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest
 
- 
-most sentient biograft besides 6-13 (nods)
 
-biograft is me I am biograft.. I jus wanna be normal (nods)
+biograft is me I am biograft.. mayb (nods)
 
 I am an emotional brick wall!! it can and WILL take me a long time to process emotional information sad face
 
