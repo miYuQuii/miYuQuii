@@ -1,4 +1,4 @@
-# MIYUQUI.DOT.ME
+# $\color{#fc8403}{\text{MIYUQUI.DOT.ME}}$!
 hiiii hi
 
 * Call me $\color{#fc8403}{\text{MIYUQUI}}$!!
