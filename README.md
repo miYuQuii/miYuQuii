@@ -40,6 +40,8 @@ I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and 
 <img width="224" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/4da3541c-a4c7-4ffb-bb51-0da6b8547341" />
 pwie pony I haven't played as bc I usually chill in the phighting area-><img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9208d5c5-465d-4cb7-9e35-ac89d04f3d36" />
 
+^- me usually!!
+
 #
 
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
