@@ -14,6 +14,8 @@ hiiii hi
 * loli/shotacons
 * AI slop makers
 * ppl who ship romantic subgraft, shurishotstaff, domvalk
+
+**IF IT TURNS OUT I'M FOLLOWING ANYONE WHO'S APPLICABLE TO THIS LIST, PLS INFORM ME ON MY INSTA!!**
  
 # $\color{#fc8403}{\text{MILD WARNING BEFORE INTERACTING}}$
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
