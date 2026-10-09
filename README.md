@@ -17,6 +17,8 @@ hiiii hi
 # $\color{#fc8403}{\text{MILD WARNING BEFORE INTERACTING}}$
 I am VERY easy to hurt, and I might come off as rude sometimes! So please interact with (semi? some?) caution!
 
+I'm a **MINOR**!! iwc if u're an adult and/or make NSFW jokes
+
 I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be warned before scrolling all the way down! 
 
 #
