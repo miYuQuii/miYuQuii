@@ -57,7 +57,7 @@ I am an emotional brick wall!! it can and WILL take me a long time to process em
 
 not exactly the smartest either so a lot of intellectual talk will just fly over my head..
 
-# $\color{#fc8403}{\text{ADD ME}$!
+# $\color{#fc8403}{\text{ADD ME}}$!
 
 LIMBUS ID : H788167939
 
