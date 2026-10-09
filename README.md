@@ -57,6 +57,13 @@ I am an emotional brick wall!! it can and WILL take me a long time to process em
 
 not exactly the smartest either so a lot of intellectual talk will just fly over my head..
 
+# $\color{#fc8403}{\text{ADD ME}$!
+
+LIMBUS ID : H788167939
+
+<img width="1789" height="899" alt="image" src="https://github.com/user-attachments/assets/400adaf6-e70a-43b0-8ffa-eda9d49d9dd0" />
+
+#
 <img width="151" height="277" alt="Pwie_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/eefb7e04-e2ea-491f-bbd0-6382578445b6" /> hi <img width="182" height="429" alt="Don_Quixote_GMS_Left_Sprite" src="https://github.com/user-attachments/assets/89455305-6b2b-44de-98bb-7a7f552f5800" />
 forsooth!! how hast we found a creature of such innocence, Manager Esquire!!!
    
