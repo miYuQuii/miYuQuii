@@ -20,7 +20,7 @@ I am VERY easy to hurt, and I might come off as rude sometimes! So please intera
 
 I'm a **MINOR**!! iwc if u're an adult and/or make NSFW jokes
 
-I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be warned before scrolling all the way down! 
+I am ALSO very prone to accidentally spoiling Limbus and Limbus in specific, be wary as there's a canto 10 character spoiler if you scroll down!
 
 #
 <p align = center>
@@ -43,19 +43,19 @@ I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and 
 
 ^ in order of current interest (though voca, utau, and synthv have the same amount of interest)
 
-#
-<img width="200" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/4da3541c-a4c7-4ffb-bb51-0da6b8547341" /> $\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="200" height="240" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9208d5c5-465d-4cb7-9e35-ac89d04f3d36" />
-
-^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
-
-#
-
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
  > " oh then why isn't your profile subspace based? " uh. I don't know either.
 
 I am an emotional brick wall!! it can and WILL take me a long time to process emotional information sad face
 
 not exactly the smartest either so a lot of intellectual talk will just fly over my head..
+
+#
+<img width="200" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/4da3541c-a4c7-4ffb-bb51-0da6b8547341" /> $\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="200" height="240" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9208d5c5-465d-4cb7-9e35-ac89d04f3d36" />
+
+^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
+
+#
 
 # $\color{#fc8403}{\text{ADD ME}}$!
 
