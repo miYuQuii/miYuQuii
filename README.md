@@ -32,6 +32,10 @@ oh wow I wonder what my favorite piece is (difficulty: impossible)
 
 # $\color{#fc8403}{\text{MORE ABOUT ME? KIND OF?}}$
 
+I'm uhhhh I'm pan? is this important information? probably not
+
+I was born on **May 12**! This makes me a Taurus!!
+
 I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest (though voca, utau, and synthv have the same amount of interest)
@@ -40,7 +44,7 @@ I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and 
 <img width="200" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/4da3541c-a4c7-4ffb-bb51-0da6b8547341" />
 pwie pony I haven't played as bc I usually chill in the phighting area-><img width="200" height="240" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9208d5c5-465d-4cb7-9e35-ac89d04f3d36" />
 
-^- me usually!!
+^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
 #
 
