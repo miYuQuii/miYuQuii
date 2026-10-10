@@ -12,8 +12,9 @@
 * homophobes, transphobes, racists
 * darkshippers
 * loli/shotacons
+* MAGA supporters
 * AI slop makers
-* ppl who ship romantic subgraft, shurishotstaff, domvalk
+* ppl who ship romantic subgraft, shurishotstaff, domvalk, medsword
 
 **IF IT TURNS OUT I'M FOLLOWING ANYONE WHO'S APPLICABLE TO THIS LIST, PLS INFORM ME ON MY INSTA!!**
  
