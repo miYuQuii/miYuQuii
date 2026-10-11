@@ -57,7 +57,7 @@ $\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in th
 
 <img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x" src="https://github.com/user-attachments/assets/d4fc34b5-3c4a-41fa-9a3b-5684e8999456" /> 
 
-$\color{#de2559}{\text{Pal}}$$\color{#ffcf00}{\text{et}}$$\color{#3000ff}{\text{tte}}$ says hi
+$\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$ says hi
 #
 
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
