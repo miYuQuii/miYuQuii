@@ -49,13 +49,12 @@ I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and 
 uhhh pony town should be there somewhere too I guess
 
 #
-<img width="200" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/4da3541c-a4c7-4ffb-bb51-0da6b8547341" /> 
+<img width="224" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/1caf8a73-fa06-47a8-8770-cc95d09d16fb" />
 
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
-$\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="200" height="240" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9208d5c5-465d-4cb7-9e35-ac89d04f3d36" />
-
-<img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x" src="https://github.com/user-attachments/assets/d4fc34b5-3c4a-41fa-9a3b-5684e8999456" /> 
+$\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
+<img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x (1)" src="https://github.com/user-attachments/assets/e08fd072-d0e6-48a0-aab4-f91705bf8ecf" />
 
 $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$ says hi
 #
