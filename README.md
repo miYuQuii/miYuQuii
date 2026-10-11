@@ -74,6 +74,8 @@ LIMBUS ID : H788167939
 
 swords save me
 
+#
+
 <img width="151" height="277" alt="Pwie_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/eefb7e04-e2ea-491f-bbd0-6382578445b6" /> hi <img width="182" height="429" alt="Don_Quixote_GMS_Left_Sprite" src="https://github.com/user-attachments/assets/89455305-6b2b-44de-98bb-7a7f552f5800" />
 forsooth!! how hast we found a creature of such innocence, Manager Esquire!!!
    
