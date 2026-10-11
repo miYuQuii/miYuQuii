@@ -62,7 +62,7 @@ not exactly the smartest either so a lot of intellectual talk will just fly over
 
 <img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
 
-<img width="184" height="256" align=right alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> 
+<img width="184" height="256" alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> 
 
 <img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x (1)" src="https://github.com/user-attachments/assets/e08fd072-d0e6-48a0-aab4-f91705bf8ecf" />
 
