@@ -68,7 +68,7 @@ LIMBUS ID : H788167939
 
 <img width="1789" height="899" alt="image" src="https://github.com/user-attachments/assets/400adaf6-e70a-43b0-8ffa-eda9d49d9dd0" />
 
-# $\color{#fc8403}{\text{WIPS}}
+# $\color{#fc8403}{\text{WIP(S)}}$
 
 <img width="1920" height="1200" alt="image" src="https://github.com/user-attachments/assets/c7ba609b-8d4c-41ce-bae6-af36d5f5ed68" />
 
