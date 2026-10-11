@@ -7,7 +7,7 @@
 
   
 # $\color{#fc8403}{\text{PLSPLS DNI}}$
-* homophobes, transphobes, racists
+* homophobes, transphobes, racists, ableists, sexists
 * darkshippers
 * loli/shotacons
 * MAGA supporters
