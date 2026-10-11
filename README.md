@@ -60,13 +60,11 @@ not exactly the smartest either so a lot of intellectual talk will just fly over
 
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
-<img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
-
 <img width="184" height="256" alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> 
 
 <img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x (1)" src="https://github.com/user-attachments/assets/e08fd072-d0e6-48a0-aab4-f91705bf8ecf" />
 
- $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{te}}$ says hi
+<img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
 
 <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> <img width="197" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /> 
 
