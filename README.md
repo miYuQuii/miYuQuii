@@ -55,8 +55,7 @@ not exactly the smartest either so a lot of intellectual talk will just fly over
 
 # $\color{#fc8403}{\text{PONIES THAT I'M REALLY PROUD OF}}$ ^^
 <img width="224" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/1caf8a73-fa06-47a8-8770-cc95d09d16fb" /> 
-<img width="184" height="256" alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> ⬅️ $\color{#42c5f5}{\text{Displayholic Miku}}$
-
+<img width="184" height="256" alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> $\color{#dc3e5f}{\text{Pwie}}$
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
 ouu we so blue
