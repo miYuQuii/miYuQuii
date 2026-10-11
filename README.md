@@ -60,7 +60,7 @@ not exactly the smartest either so a lot of intellectual talk will just fly over
 
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
-$\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
+$\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-> <img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
 
 <img width="184" height="256" align=right alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> 
 
