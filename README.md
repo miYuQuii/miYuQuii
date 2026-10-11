@@ -61,7 +61,7 @@ $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\tex
 
 <img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" />
 
-<p align = center>we are the $\color{#de2559}{\text{Pal}}$$\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$lings, we say hi</p>
+<p align = center>we are the $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$ lings, we say hi</p>
 
 
 #
