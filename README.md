@@ -58,6 +58,12 @@ $\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in th
 <img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x (1)" src="https://github.com/user-attachments/assets/e08fd072-d0e6-48a0-aab4-f91705bf8ecf" />
 
 $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$ says hi
+
+<img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" /><img width="40" height="157" alt="Palette_GMS_Front_Sprite" src="https://github.com/user-attachments/assets/8736d43b-694b-4ed8-a07f-0c4d7c626330" />
+
+<p align = center>we are the $\color{#de2559}{\text{Pal}}$$\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$lings, we say hi</p>
+
+
 #
 
 lowk $\color{#fc8403}{\text{larpergraft}}$ I only like this funny little robot because I like orange (2nd favorite color next to pink!)
