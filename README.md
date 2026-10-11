@@ -54,6 +54,7 @@ uhhh pony town should be there somewhere too I guess
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity)
 
 $\color{#b52141}{\text{Pwie}}$ pony I haven't played as bc I usually chill in the phighting area-><img width="264" height="248" alt="pony-town-a-dance-4-padded-4x" src="https://github.com/user-attachments/assets/9a118759-b89b-4b3c-9eac-7fc7523255f7" />
+
 <img width="232" height="216" alt="pony-town-asd-boop-lie-padded-4x (1)" src="https://github.com/user-attachments/assets/e08fd072-d0e6-48a0-aab4-f91705bf8ecf" />
 
 $\color{#de2559}{\text{Pal}}$ $\color{#ffcf00}{\text{et}}$ $\color{#3000ff}{\text{tte}}$ says hi
