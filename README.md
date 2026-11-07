@@ -5,6 +5,8 @@
 * or Miyu
 * don't really matter LOLOL
 
+lord I just realized how awkward some pngs look on mobile I'm so sorry
+
   
 # $\color{#fc8403}{\text{PLSPLS DNI}}$
 * homophobes, transphobes, racists, ableists, sexists
