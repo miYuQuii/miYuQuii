@@ -42,7 +42,7 @@ I'm uhhhh I'm pan? is this important information? probably not
 
 I was born on **May 12**! This makes me a Taurus!!
 
-I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, FNAF, Undertale, and Deltarune!!
+I like Phighting!, Limbus Company, Vocaloid, Utau, SynthV, Nullscape, FNAF, Undertale, and Deltarune!!
 
 ^ in order of current interest (though voca, utau, and synthv have the same amount of interest)
 
