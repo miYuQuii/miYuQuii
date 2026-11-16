@@ -58,7 +58,7 @@ not exactly the smartest either so a lot of intellectual talk will just fly over
 # $\color{#fc8403}{\text{PONIES THAT I'M REALLY PROUD OF}}$ ^^
 <img width="224" height="264" alt="pony-town-icedagger __ P! c+h-fly-blinking-padded-4x" src="https://github.com/user-attachments/assets/1caf8a73-fa06-47a8-8770-cc95d09d16fb" /> 
 <img width="184" height="256" alt="pony-town-displayholic __ c+h-dance move 1-padded-4x (2)" src="https://github.com/user-attachments/assets/348acf06-3c13-4240-b65b-6481c32a3210" /> 
-<img width="216" height="280" alt="pony-town-gammagraft __ s&#39;ata c+h s&#39;oftb-dance-3-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/a7ebab16-2f97-4df2-9c85-9644f8d8d008" />
+<img width="216" height="280" alt="pony-town-gammagraft __ s&#39;ata c+h s&#39;oftb-dance-3-padded-ponyplush-4x (1)" src="https://github.com/user-attachments/assets/8b581f2f-6d19-4202-95fd-674e380d1698" />
 
 ^- me usually!! (who is $\color{#42c5f5}{\text{Icedagger}}$? He is a deity) || ^- $\color{#42c5f5}{\text{Displayholic Miku}}$ !! || ^-- me usually pt 2!! $\color{#5957ff}{\text{Gamma Gamma Gamma Gamma Gamma Gamma Ga}}$
 
